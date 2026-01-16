@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LEZD021105MDFYMLA6
+LEZD021105MDFYMLA6
